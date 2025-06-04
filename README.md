@@ -1,5 +1,6 @@
 # Kelompok_1B
 - Budi Triadi
-- Budi
-- Budz
-- Xbudz
+- Yasmine khairatun hisan
+- Aprizal fongsitammu
+- Gladiva warouw
+- Fathina munifah
