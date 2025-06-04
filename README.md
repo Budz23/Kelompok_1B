@@ -1,6 +1,6 @@
 # Kelompok_1B
 - Budi Triadi
 - Yasmine khairatun hisan
-- Aprizal fongsitammu
+- Aprisal pongsitammu
 - Gladiva warouw
 - Fathina munifah
